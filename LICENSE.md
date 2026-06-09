@@ -1,4 +1,4 @@
-# 
+# Elite deribit trading bot extensions for Mac OS | Turbo deribit trading bot extensions for PC Windows. Featuring data caching and portfolio tracking — optimized for maximum performance on every platform.
 
 
 
